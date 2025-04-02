@@ -1,2 +1,0 @@
-# khalidsalim
-web designer
